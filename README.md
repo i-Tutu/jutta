@@ -1,1 +1,1 @@
-# jutta
+This template is a friendship template. It was designed for a cherish friend.
